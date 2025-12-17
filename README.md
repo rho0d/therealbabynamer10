@@ -1,6 +1,6 @@
 Privacy Policy for The Real Baby Namer
 
-Last updated: December 15, 2025
+Last updated: December 17, 2025
 Overview
 
 The Real Baby Namer (the "App") respects your privacy. This Privacy Policy explains how the App handles information when you use it.
