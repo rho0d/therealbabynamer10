@@ -42,6 +42,6 @@ Contact Information
 
 If you have any questions about this Privacy Policy, you may contact us at:
 
-Email: edielanzano@gmail.com
+https://forms.gle/METZmUXssGFR8LBm7
 
 By using The Real Baby Namer, you acknowledge that the App does not collect or process personal data.
